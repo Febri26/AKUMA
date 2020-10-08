@@ -1,0 +1,2 @@
+# AKUMA
+Mining for money
